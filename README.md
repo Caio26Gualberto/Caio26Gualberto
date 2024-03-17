@@ -1,3 +1,1 @@
-![image](https://github.com/Caio26Gualberto/Caio26Gualberto/assets/84203198/9d5352e5-9a89-4d23-a990-1e052b966320)
-![image](https://github.com/Caio26Gualberto/Caio26Gualberto/assets/84203198/b2d3871c-b3e0-4398-bd3a-126bf674bfe1)
-
+![image](https://github.com/Caio26Gualberto/Caio26Gualberto/assets/84203198/1f8c5424-a72e-4c68-af84-9791326c2555)
